@@ -39,8 +39,6 @@ As a fast learner with a growth mindset, I’m excited to continue exploring the
 
 ## 📫 Let's Connect
 - 📧 Email: [cedricjohn.cawaling.7@gmail.com](mailto:cedricjohn.cawaling.7@gmail.com)  
-- 💼 LinkedIn: *(add link if you make one)*  
-- 🌍 Portfolio Website: *(future link when hosted)*  
 
 ---
 ⭐ *Thanks for visiting my profile! Feel free to check out my repositories and projects.*  
